@@ -20,5 +20,5 @@
 **Хост** -- один из колледжей в Самарской Обл.
 
 Оказывали консультации:
-> https://t.me/IvanFedorchenkoNSK
+> https://t.me/rruinedking
 > https://t.me/quickyhf
